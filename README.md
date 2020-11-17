@@ -1,4 +1,4 @@
-# A187 ID
+# WOW XNZUL
 BOT WHATSAPP XNZUL MODS
 
 ### Alat dan Bahan
